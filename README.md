@@ -56,7 +56,7 @@ Follow these steps to begin your journey with **Dhanalakshmi24 Business Solution
 ## Contact Information
 **Dhanalakshmi24 Business Solution Pvt. Ltd.**  
 - **Address:** 1-22, Near Busstand, Tadepalligudem, Andhra Pradesh, West Godavari Dist, 534101  
-- **Phone:** 6361818850, 8074024098  
+- **Phone:** 7993995076, 8074024098  
 - **Email:** dhanalakshmi24businesssolution@gmail.com  
 - **Website:** [https://precious-cupcake-a0dfcd.netlify.app](https://precious-cupcake-a0dfcd.netlify.app)  
 
